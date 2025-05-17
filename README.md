@@ -1,7 +1,9 @@
 ![Image](https://github.com/user-attachments/assets/8bbcc87f-6782-404d-bf8a-75152a22baf3)
 
 
+### the   _ETERNAL._
 
+<span style="color: [Periwinkle](https://htmlcolorcodes.com/colors/periwinkle/);">meow</span>
 
 
 
