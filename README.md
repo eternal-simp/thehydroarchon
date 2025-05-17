@@ -1,21 +1,15 @@
-![Image](https://github.com/user-attachments/assets/02270681-7dae-4cf3-9cd4-f1121784f329)
-
-
-
-
-" All cookies shall be happy in my garden!.. "
-
-
-
-![Image](https://github.com/user-attachments/assets/19bfc5f8-1526-4043-a727-2ddbffd3ebb1)
-
-
-
-Check my straw , ata and pronoun. !
+![Image](https://github.com/user-attachments/assets/51c3e53f-7a7a-4f15-a8e1-000928c4aeda
 
 
 
 
 
 
-![Image](https://github.com/user-attachments/assets/2500fc6b-1eb2-4698-81fd-8d3e91bfaf04)
+![Image](https://github.com/user-attachments/assets/b6973c92-7cde-48ad-b9b8-b854e7023046)
+
+
+
+
+
+
+![Image](https://github.com/user-attachments/assets/78a307ea-76a1-4d49-80f1-6817bd6338ea)
