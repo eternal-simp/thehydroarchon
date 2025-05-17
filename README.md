@@ -3,8 +3,7 @@
 
 ### the   _ETERNAL._
 
-<span style="color: [Periwinkle](https://htmlcolorcodes.com/colors/periwinkle/);">meow</span>
-
+<span style="color: periwinkle;">meow</span>
 
 
 ![Image](https://github.com/user-attachments/assets/b6973c92-7cde-48ad-b9b8-b854e7023046)
